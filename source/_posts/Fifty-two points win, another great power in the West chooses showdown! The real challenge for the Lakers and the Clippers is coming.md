@@ -1,0 +1,20 @@
+
+---
+title: Fifty-two points win, another great power in the West chooses showdown! The real challenge for the Lakers and the Clippers is coming
+date: 2019-10-06 00:00:00
+tags:  NBA
+---
+![Fifty-two points win, another great power in the West chooses showdown! The real challenge for the Lakers and the Clippers is coming](54d80fdf1a594d8a93f23fb95791119c.jpg)
+In the NBA pre-season, which ended in the morning of October 6th, sir, the Jazz won 36 points in Australia at the home 133-81. In this game, Berg Bogdanovic, Kang Li and Wu did not appear, and the Jazz coach gave him more opportunities. In the eyes of multi-American media, the West really strong team, in the first game of the new season, showed a strong offensive firepower!
+![Fifty-two points win, another great power in the West chooses showdown! The real challenge for the Lakers and the Clippers is coming](0da889aeec63436493c78c87408d3ecb.jpg)
+First look at the jazz player data, Berg Bogdanovic 10 points 4 assists and 4 rebounds, Jeff Green 16 points and 2 rebounds, 8 8 points 7 rebounds, 10 10 points 6 assists, 12 12 points 6 assists, scores 6 rebounds, score points, the score is double, which is built on the team's lack of former scorers.
+![Fifty-two points win, another great power in the West chooses showdown! The real challenge for the Lakers and the Clippers is coming](3df7be266c8b479b8734fe41a50952b1.jpg)
+In fact, the 36 person team is not weak, the two sides played very well, but by the end of the first quarter, the Jazz scored 12-0 points in a wave of 12-0, the breakthrough in Jeff Green, the three points in the middle distance, and the new jazz support system was almost the tactical system for the seamlessly butting the team, and this summer has been in the whirlpool of the trade, scoring 7 points in 5. Negative + 30 responds to the team's final choice. Even without three top players, the Jazz now has nine players to rotate, which is terrible!
+![Fifty-two points win, another great power in the West chooses showdown! The real challenge for the Lakers and the Clippers is coming](fc07cdce67cd4c3eb9d61aa09aa79f7c.jpg)
+The three-quarter lead was 41 points, and the final score was 133-81!
+![Fifty-two points win, another great power in the West chooses showdown! The real challenge for the Lakers and the Clippers is coming](b85ee66fa3a346b5825cbda5958cbfb0.jpg)
+In the Lakers and warriors game, the two sides also gave their new season predictions. Chris Webb's prediction for the top eight of the new season is: clippers, Nuggets, Lakers, pioneers, jazz, spurs and lone Rangers. Webb believes that the upper limit of jazz is still in Mitchell, and the prospect of Conley and Mitchell's cooperation is unknown.
+![Fifty-two points win, another great power in the West chooses showdown! The real challenge for the Lakers and the Clippers is coming](133c0d9002a74472ae838e7de77e02a5.jpg)
+But Reggie Miller put forward different opinions. Of course, the Clippers and the Lakers are obvious, but the Jazz are still a dynamic team. Like the Clippers, the overall strength is balanced and there is no obvious weakness. They also added a number of outside shooters in the summer, such as Green, Bogdan and Bradley, who have outside shooting ability. So in Reggie Miller's mind, the top eight places in the West are Nuggets, Clippers, Jazz, Lakers, Trailblazers, Warriors and Rangers.
+![Fifty-two points win, another great power in the West chooses showdown! The real challenge for the Lakers and the Clippers is coming](41a67e11db6146d7a19de704139d0af7.jpg)
+No matter which rankings, they want to get into the top eight in the brutal West. It is very difficult. In the past two years, the Jazz have fallen to the same team for the two time because of the lack of support from the side, but the jazz of the new season is definitely worth looking forward to. Today, we can see the Lakers' game. It took 18 minutes to finish the game. The clipper debut is on the way. The cruel West is starting to compete, but don't neglect the Jazz coming back.

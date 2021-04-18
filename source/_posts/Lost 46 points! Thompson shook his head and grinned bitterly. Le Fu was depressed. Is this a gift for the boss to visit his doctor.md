@@ -1,0 +1,27 @@
+
+---
+title: Lost 46 points! Thompson shook his head and grinned bitterly. Le Fu was depressed. Is this a gift for the boss to visit his doctor
+date: 2019-10-14 00:00:00
+tags:  NBA
+---
+At the end of today's pre-season game, the Celtics won three consecutive victories at home by 118-72 points over the Cavaliers. No one would have thought that the knight would suffer such a crushing defeat. Although Thompson and Love truce today, the knight would not be beaten like this.
+After all, the Cavaliers did not make a bad start: 1 Sexton + 2 Dravidowa + 3 Ottoman + 4 Little Nans + 5 Martin. Sexton was the Cavaliers'first new recruit last season, while Dravidova was known for his defensive qualities. Plus Ottoman's attack and defense on the flanks, Nancy's eating bread under the basket, Martin's frame and rebound.
+In theory, the Cavaliers still have the strength to fight, but in the whole game, the Cavaliers basically resisted only one quarter, and then three quarters were humiliated by the Green Army, there is no room for resistance.
+![Lost 46 points! Thompson shook his head and grinned bitterly. Le Fu was depressed. Is this a gift for the boss to visit his doctor](7c1cb92463564498a371d27baa1db67e.jpg)
+In the first quarter, the Knights and Celtics were caught in the iron, and both felt bad. But Celtic have defense, they still rely on defense when they can't score. Another is Kenbawalker, who started to drive the team when the Green Army's offensive stalled.
+First, Hayward made a delicate connection and hit three points. After that, Walker not only scored killing points, but also led the Green Army to a wave of attacks, leading the Celtics by five points in the first quarter. These five points are only a harbinger of the storm, because the Celtics broke out in the second quarter.
+They started a defensive counter-attack, and Jay Brown, who demanded the highest salary, showed horrible dominance, not only scoring in a row under the basket, but also hitting three points on the outside, one man scoring seven points in a row. After a wave of 11-0, the Celtics were 16 points ahead.
+![Lost 46 points! Thompson shook his head and grinned bitterly. Le Fu was depressed. Is this a gift for the boss to visit his doctor](5916209f46214a13a894a85ad49d1c01.jpg)
+After that, the Celtics offensive remained unchanged. Walker took over the baton in the middle of the second quarter and led the team to hit the attack wave again. The difference has been drawn to 31 points. The game was basically settled. The Celtics fought harder and harder in the second half, and the Cavaliers surrendered in white. The maximum difference in the last quarter has been opened to 50 points.
+Today's game, though not the Cavaliers'new season fixture. But their performance was frustrating because the knights had little resilience. They are like scattered sand, like the sun in the past few years.
+As long as they lag behind a lot, they begin to give up. They have no intention of competing with their opponents at all. The three demons of the Knight also behaved badly.
+![Lost 46 points! Thompson shook his head and grinned bitterly. Le Fu was depressed. Is this a gift for the boss to visit his doctor](3156eaae905b4d34aad52127485fc77a.jpg)
+James's youngest brother, Osman, did poorly throughout the game, scoring only two points in one of his 10. Sexton scored 4 points in 1 of 8, and Porter scored 4 points in 1 of 8. These three are the three evil stars that Knights value very much. The boss had fantasized that they would become All-Stars in the future.
+But three out of 26 of the three scored 10 points. Twenty-six shots in exchange for ten points. For knights, they were disappointed. Even if Rover and Thompson are here today, can the Cavaliers win the Celtics? I'm afraid it's impossible.
+From the Cavaliers fans'point of view, they may still be in bad shape next season. It's nothing for new people, but it's too exhausting for the old ones.
+![Lost 46 points! Thompson shook his head and grinned bitterly. Le Fu was depressed. Is this a gift for the boss to visit his doctor](84faaefb591e4856b4f0c41c090f747b.jpg)
+Several new Cavaliers apologized publicly after the race, but that didn't make sense. Because Rover was very frustrated to see all this, this summer, Rover said that the Cavaliers could be in the playoffs next season. But now? I'm afraid Rover is going back to Timberwolves again. He can't make it into the playoffs anyway.
+We all know that James had a great influence on knights, but we didn't expect it to be so great. Ultimately, Knights have no backbone and no leader can stand up and give orders.
+![Lost 46 points! Thompson shook his head and grinned bitterly. Le Fu was depressed. Is this a gift for the boss to visit his doctor](26b50efdedf3482a89227d5f8003b17e.jpg)
+In addition, according to Chris Fedor, a journalist with the Cleveland Honest, the knight's owner, Gilbert, has now been discharged and returned to his home. All the Knights are going to visit the owner's house. Now you take the score of 46 points as a gift to see a doctor?
+The Cavalier's recent situation is also very bad for TT Thompson, who will expire his $82 million contract in the next five years. With the Cavalier's current performance, Thompson's next big contract is somewhat suspended.
